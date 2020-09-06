@@ -3,14 +3,14 @@
 
 Москва, готов к переезду (Беларусь, Россия, Украина), готов к редким командировкам
  
-**+7 916 756–38–40  
-kvadeck@gmail.com**  
+Телефон: **+7 916 756–38–50**  
+Почта: [kvadeck@gmail.com](mailto:kvadeck@gmail.com "kvadeck mailto link")
 
 GitHub:  
-https://github.com/kvadeck
+[https://github.com/kvadeck](https://github.com/kvadeck "kvadeck github link")
 
-Vk:  
-https://www.vk.com/kvadeck
+Vk:
+[https://www.vk.com/kvadeck](https://www.vk.com/kvadeck "kvadeck vk link")  
 
 ## Веб-разработчик, фронтенд
 
