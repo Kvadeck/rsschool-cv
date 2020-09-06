@@ -10,6 +10,7 @@ GitHub:
 [https://github.com/kvadeck](https://github.com/kvadeck "kvadeck github link")
 
 Vk:
+
 [https://www.vk.com/kvadeck](https://www.vk.com/kvadeck "kvadeck vk link")  
 
 ## Веб-разработчик, фронтенд
